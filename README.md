@@ -23,7 +23,8 @@ Yoshiyuki Kato(以下「提供者」)はチカクノ「(以下「本アプリ)�
 提供者は本ポリシーの内容を適宜見直し、必要に応じて本ポリシーを改定できるものとします。
 
 ## お問い合わせ
-お問い合わせは下記よりメールにてお願いします。  
-yoshiyukikt@gmail.com
+お問い合わせは下記よりお願いします。  
+https://docs.google.com/forms/d/1Cz3qZiO0ZhWbVce65hkbtfMGpfYLcZtXC89hBdHzQBU/edit
 
 2020年6月15日制定
+2020年6月23日更新
